@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Shiva2598
+- 👀 I’m interested in ...
+- 🌱 I’m currently persuing bachelor computer 🔭 
